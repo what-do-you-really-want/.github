@@ -1,1 +1,3 @@
-# .github
+# *What Do You Really Want? | Alan Watts on Authentic Desire and Self-Discovery*
+## *Discover the spiritual path to your true desires. Break free from the illusion of control and find your "Middle Way" with Alan Watts. The greatest success is not achieving everything you want— but discovering that you already are what you were searching for.* [More details…](https://spiritualkhazaana.com/web-stories/what-do-you-really-want/)
+## #SoulAlignment #InnerWisdom #WhatDoYouReallyWant #WhatDoYouReallyWant #AlanWatts #AuthenticDesire #SelfDiscovery #LifePurpose #TrueHappiness #PersonalTruth #AligningWithYourself #MeaningfulLife #AuthenticitySpeaks #InnerTruth #PurposeDriven #RealDesires #SelfAwareness #CourageToBeYourself #AuthenticLiving #ExistentialWisdom #HeartCentered #FulfillmentJourney #TransformativeQuestions
